@@ -1,85 +1,51 @@
-# NYC Summer Wardrobe — Denise
+# NYC Summer Tops — Denise
 
 Wardrobe research for Denise: turning 40, mom bod, 5'6", traveling to New York City for July 4th holiday (summer, hot and humid, 85-95F).
 
-Clothing only. All items available at Washington Square Mall (Tigard, OR) clothing stores. Focus: tummy-minimizing styles. Links to merchandise where possible.
+Tops only. All items available at Washington Square Mall (Tigard, OR) clothing stores. Links to merchandise where possible.
 
-## The Strategy: How to Minimize the Tummy
+## What Makes a Good NYC Summer Top
 
-Five silhouettes that work. Every item below uses one or more:
-
-1. EMPIRE WAIST — waistline sits just below the bust, fabric flows freely over the midsection
-2. WRAP — fabric crosses and ties at the waist, V-neck draws the eye up, waistline sits above the tummy
-3. PEPLUM — fitted at the natural waist, flares out over the tummy
-4. FIT-AND-FLARE / A-LINE — fitted bodice, skirt flares from the waist, skims over the midsection
-5. BUILT-IN SHAPEWEAR / TUMMY CONTROL — dresses and underlayers with integrated tummy panels
-
-Additional principles:
-- Ruching and draping create texture that camouflages
-- Darker colors on the bottom, lighter or printed on top (draws the eye up)
-- Structured fabrics hold their shape rather than clinging
-- Midi and maxi lengths most flattering at 5'6" and most comfortable in humidity
-- Avoid: shapeless/boxy cuts, clingy knits, super low-rise, belts at the natural waist
+- Breathable fabrics — cotton, linen, rayon, bamboo blends. Avoid polyester-heavy synthetics in humidity.
+- Versatile — can dress up with jeans for dinner or down with shorts for sightseeing.
+- Layers well — NYC restaurants and subway cars pump AC hard. A top that works under a light jacket or blazer.
+- Comfortable for walking — nothing that rides up, gaps, or needs constant adjusting.
+- At 5'6", regular and petite cuts both work. Avoid overly long tunics if pairing with skirts.
 
 ---
 
 ## DEPARTMENT STORES
 
-### NORDSTROM (Oregon's largest, anchor store)
+### NORDSTROM
 
-#### 1. Sam Edelman Etched Floral Print Maxi Dress
-- https://www.nordstrom.com/s/sam-edelman-etched-floral-print-maxi-dress/6942464
-- TUMMY: Defined waist sits above natural waistline (near empire), tiered ruffled skirt flows over the tummy. Floral print draws the eye across the whole dress.
-- Price: ~$168
-
-#### 2. Halogen Sleeveless Peplum Top
+#### 1. Halogen Sleeveless Peplum Top
 - https://www.nordstrom.com/s/halogen-sleeveless-peplum-top/7342574
-- TUMMY: Peplum flare starts at the waist and falls over the tummy. Ruffled hem creates volume that hides what's underneath.
+- Peplum flare at the waist. Jewel neck. Sleeveless for summer. Nordstrom house brand.
 - Price: ~$49-69
 
-#### 3. Popilush Built-in Shapewear Draped High Neck Maxi Dress
-- https://www.nordstrom.com/s/built-in-shapewear-draped-high-neck-maxi-dress/8745880
-- TUMMY: Built-in 3-in-1 shapewear for tummy control and waist sculpting. No separate shapewear layer in summer heat.
-- Price: ~$154
-
-#### 4. Stretch Knit Crepe Draped Tunic (also available in plus)
-- https://www.nordstrom.com/s/stretch-knit-crepe-draped-tunic-plus/9140419
-- TUMMY: Fluid draping creates folds that camouflage the midsection. Tunic length covers the tummy entirely. Crepe fabric holds shape without clinging.
-- Price: ~$60-90
-
-#### 5. Nordstrom Empire Waist Midi Dresses (collection)
-- https://www.nordstrom.com/browse/women/clothing/dresses/midi?filterByStyle=empire-waist
-- TUMMY: Empire waist collection. Multiple brands and styles. Browse in-store.
-- Price: ~$89-209
+#### 2. Nordstrom Women's Tops (full collection)
+- https://www.nordstrom.com/browse/women/clothing/tops-tees
+- Full tops collection. Browse in-store for Halogen, BP, Caslon, and Sam Edelman house brands. Nordstrom Rack (separate from the mall but nearby) has discounted versions.
+- Price: ~$30-200+
 
 ### MACY'S
 
-#### 6. White Mark Empire Waist Tunic Top
+#### 3. White Mark Empire Waist Tunic Top
 - https://www.macys.com/shop/product/white-mark-womens-empire-waist-tunic-top?ID=16207973
-- TUMMY: Empire waistband sits below the bust. Fabric drapes freely over the entire midsection. Soft fabric drapes beautifully per reviews.
+- Empire waistband, soft draping fabric. Works over jeans or shorts.
 - Price: ~$40-52
 
-#### 7. Macy's Tummy Control Dresses (Charter Club and others)
-- https://www.macys.com/shop/featured/tummy-control-dresses
-- TUMMY: Built-in tummy control panels. Charter Club pull-on shaping dress and sculpting sweetheart midi. Boat neck and twist-front V-neck options.
-- Price: ~$60-200
-
-#### 8. Macy's Empire Waist Maxi Dress Collection
-- https://www.macys.com/shop/featured/empire-waist-maxi-dress
-- TUMMY: Empire waist + maxi length = maximum tummy coverage. V-neck maxi options.
-- Price: ~$50-90
+#### 4. Macy's Women's Tops (full collection)
+- https://www.macys.com/shop/womens/clothing/tops?id=255
+- Full tops department. Charter Club, Lauren Ralph Lauren, Bar III, and INC are the key brands. Bar III is Macy's trendy line, Charter Club is classic.
+- Price: ~$25-80
 
 ### JCPENNEY
 
-#### 9. White Mark V-Neck Short Sleeve Ruffled Empire Waist Dress
-- https://www.jcpenney.com/g/women/dresses?dress_type=empire+waist+dresses&id=cat100210008
-- TUMMY: Empire waist + V-neck draws the eye up + ruffled detail adds camouflaging texture. Regular and plus sizes.
-- Price: ~$42-45
-
-#### 10. JCPenney Empire Waist Dress Collection
-- https://www.jcpenney.com/g/women/dresses?dress_type=empire+waist+dresses&id=cat100210008
-- TUMMY: Entire collection is empire waist. Multiple brands, colors, lengths. Best budget option.
-- Price: ~$35-55
+#### 5. JCPenney Women's Tops (full collection)
+- https://www.jcpenney.com/g/women/clothing/tops?id=cat100240003
+- Full tops department. Arizona, St. John's Bay, and Liz Claiborne are the value brands. Good selection of casual summer tops.
+- Price: ~$15-45
 
 ---
 
@@ -87,283 +53,348 @@ Additional principles:
 
 ### ARITZIA
 
-#### 11. Aritzia Wrap Dresses (collection)
-- https://www.aritzia.com/en/clothing/dresses?category=Wrap
-- TUMMY: Wrap silhouette defines the waist above the tummy and creates a V-neck that draws the eye upward. Aritzia carries premium brands like Babaton and Wilfred with structured fabrics that hold shape.
-- Price: ~$98-248
-- Note: Aritzia also has an in-house tailoring service for hemming.
+#### 6. Aritzia Tops (collection)
+- https://www.aritzia.com/en/clothing/tops
+- Premium brands: Babaton (structured, minimal), Wilfred (flowy, feminine), Talula (casual). Known for quality fabrics and cuts that flatter real bodies.
+- Price: ~$48-148
+- Note: Cloudflare bot detection blocks direct product links. Browse in-store at Washington Square. Staff are well-trained for styling.
 
 ### FREE PEOPLE
 
-#### 12. Free People Maxi Dresses (collection)
-- https://www.freepeople.com/clothing/dresses/maxi-dresses/
-- TUMMY: Free People specializes in flowy, bohemian silhouettes. Maxi dresses with empire and babydoll cuts that skim over the midsection. Look for their "Movement" and "Sandy" fits.
-- Price: ~$98-168
+#### 7. Free People Tops (collection)
+- https://www.freepeople.com/clothing/tops/
+- Bohemian, flowy aesthetic. Look for their "Sandy" and "Movement" fits — relaxed, breezy silhouettes. Good for layering over a cami.
+- Price: ~$48-98
 
 ### J.CREW
 
-#### 13. J.Crew Wrap Dresses (collection)
-- https://www.jcrew.com/c/womens/categories/clothing/dresses/wrap-dresses
-- TUMMY: Wrap silhouettes with structured fabrics. J.Crew's Madelyn blazer is also a good layering piece for AC.
-- Price: ~$98-168
+#### 8. J.Crew Women's Tops (collection)
+- https://www.jcrew.com/c/womens/categories/clothing/shirts-blouses
+- Structured button-ups, tissue turtlenecks, and their famous popover shirts. Classic, preppy, well-made. The popover shirt is a signature piece that works dressed up or down.
+- Price: ~$50-98
 
 ### MANGO
 
-#### 14. Mango Wrap and Empire Dresses (collection)
-- https://shop.mango.com/us/women/dresses
-- TUMMY: Mango has a wide selection of empire waist and wrap dresses at accessible price points. European cut, slightly more tailored. Look for their midi and maxi lengths.
-- Price: ~$40-130
+#### 9. Mango Women's Tops (collection)
+- https://shop.mango.com/us/woman/tops
+- European-cut, slightly more tailored than American brands. Wide selection of blouses, camis, and t-shirts at accessible prices. Good for trend pieces.
+- Price: ~$20-60
 
 ### CHICO'S
 
-#### 15. Chico's Empire Waist and Peplum Tops
+#### 10. Chico's Women's Tops (collection)
 - https://www.chicos.com/clothing/tops/
-- TUMMY: Chico's specifically targets women 40+ and designs for real bodies. Their peplum and empire waist tops are cut to skim the midsection. Also carry tummy-control bottoms.
+- Designed specifically for women 40+. Their "So Slimming" line has built-in shaping. Peplum, tunic, and drape-front styles. Staff trained in body-type styling.
 - Price: ~$40-89
-- Note: Best store for 40+ fit expertise. Staff trained in body-type styling.
+- Note: Best store for 40+ fit expertise. Ask staff for recommendations.
 
 ### H&M
 
-#### 16. H&M Empire Waist and Wrap Dresses
-- https://www2.hm.com/en_us/women/categories/dresses.html
-- TUMMY: Budget-friendly empire waist and wrap dress options. Look for their "Premium" and "Divided" lines. Good for trend pieces that don't need to last forever.
-- Price: ~$25-60
+#### 11. H&M Women's Tops (collection)
+- https://www2.hm.com/en_us/women/categories/tops.html
+- Budget-friendly trend tops. Good for pieces that don't need to last forever. Look for their "Premium" line for better quality.
+- Price: ~$10-40
 
 ### ALTAR'D STATE
 
-#### 17. Altar'd State Dresses and Peplum Tops
-- https://www.altardstate.com/clothing/dresses
-- TUMMY: Altar'd State carries feminine, flowy silhouettes including peplum tops and empire waist dresses. Their "Bless Your Heart" and "Angel" fits tend toward tummy-friendly A-line cuts.
-- Price: ~$34-68
+#### 12. Altar'd State Tops (collection)
+- https://www.altardstate.com/clothing/tops
+- Feminine, flowy aesthetic. Peplum tops, babydoll tops, and off-shoulder styles. Good selection of summer blouses.
+- Price: ~$24-48
 
 ### ATHLETA
 
-#### 18. Athleta Transcend Maxi Dress
-- https://athleta.gap.com/browse/product.do?pid=844284032
-- TUMMY: Ruching at the waist creates camouflaging texture. VitaFree stretch fabric is lightweight for NYC humidity. Adjustable straps. Shelf bra for support. Reviews note it does fit snugly but ruching is flattering.
-- Price: ~$83-139 (often on sale)
+#### 13. Athleta Tank Tops (collection)
+- https://athleta.gap.com/browse/tops/tank-tops?cid=1011678
+- Travel-friendly, wrinkle-resistant. Built-in shelf bras in many styles. Good for sightseeing days. Look for the "Prima" and "Transcend" lines.
+- Price: ~$39-69
 
-#### 19. Athleta Travel Clothing Collection
-- https://athleta.gap.com/shop/womens-travel-clothes-0aaz48b
-- TUMMY: Wrinkle-resistant, quick-dry travel pieces. The It's a Wrap Romper and Journey Dress are one-and-done options designed for travel. Good for NYC walking days.
-- Price: ~$49-109
+#### 14. Athleta Short Sleeve Tops (collection)
+- https://athleta.gap.com/browse/tops/short-sleeve-tops?cid=1011679
+- Quick-dry, lightweight. Good for humid NYC days. VitaFree fabric is their most breathable.
+- Price: ~$39-59
 
 ### LULULEMON
 
-#### 20. Lululemon Define Jacket (Nulu fabric)
+#### 15. Lululemon Define Jacket (Nulu fabric)
 - https://shop.lululemon.com/p/jackets-and-hoodies-jackets/Define-Jacket-Nulu/_/prod11020158
-- TUMMY: The Define jacket is Lululemon's most reviewed piece for "snatching" effect. Skims the body and sits below the waistband for moderate coverage. Perfect AC layer that doubles as a light jacket for NYC evenings.
+- Not a traditional top, but the ultimate AC layer. Skims the body, sits below the waist. Wear over any tank or tee for NYC restaurants and subway cars.
 - Price: ~$118
-- Note: Reviews say it's not a miracle worker for the tummy but creates a sleek silhouette. Size down for compression, true to size for relaxed.
+
+#### 16. Lululemon Women's Tops (collection)
+- https://shop.lululemon.com/c/women-shirts-and-tops/n1z6z
+- Align tanks, Swiftly Tech tees, and Define jackets. Align is buttery soft for casual wear. Swiftly Tech is the best breathable option for humidity.
+- Price: ~$38-118
 
 ### VUORI
 
-#### 21. Vuori Long Sleeve Halo Wrap Top
+#### 17. Vuori Long Sleeve Halo Wrap Top
 - https://vuoriclothing.com/products/womens-long-sleeve-halo-wrap-top-pale-grey-heather
-- TUMMY: Wrap silhouette creates a V-neck (draws the eye up) and the tie waist sits above the tummy. Insanely soft brushed jersey knit. 89% recycled fabric.
+- Wrap silhouette with tie waist. Insanely soft brushed jersey knit. 89% recycled fabric. Reads as stylish everyday top, not activewear.
 - Price: ~$88
-- Note: Technically activewear but reads as a stylish everyday top. Perfect for travel days.
+
+#### 18. Vuori Women's Tops (collection)
+- https://vuoriclothing.com/collections/womens-tops
+- Performance fabrics that look like everyday wear. The Halo Wrap and Strappy Bra top are their most popular. Good for travel days.
+- Price: ~$44-88
 
 ### FABLETICS
 
-#### 22. Fabletics Active Dresses (collection)
-- https://www.fabletics.com/collections/dresses
-- TUMMY: Active dresses with built-in shorts and shelf bras. Fit-and-flare silhouettes. Midsize reviewers specifically praise Fabletics for tummy-friendly cuts. Good for sightseeing days.
-- Price: ~$25-60 (VIP pricing)
-
-### GARAGE
-
-#### 23. Garage High Rise Lift Wide Leg Jeans
-- https://www.garageclothing.com/us/p/high-rise-lift-jeans/10010409207I.html
-- TUMMY: High rise (11") smooths the midsection. Wide leg balances proportions. Stretchy denim holds shape. Budget-friendly.
-- Price: ~$45-65
+#### 19. Fabletics Women's Tops (collection)
+- https://www.fabletics.com/collections/womens-tops
+- Activewear tops that work as casual streetwear. Good for sightseeing days. VIP pricing makes these very affordable.
+- Price: ~$15-40 (VIP)
 
 ### AMERICAN EAGLE / AERIE
 
-#### 24. AE Super High-Waisted Baggy Wide-Leg Jeans
-- https://www.ae.com/us/en/p/women/jeans/baggy-wide-leg-jeans/ae-super-high-waisted-baggy-wide-leg-jean/0437_5350_857
-- TUMMY: Super high waist (11.25" rise) holds in the tummy. Wide leg elongates. "Dreamy Drape" fabric is soft and stretchy. Curvy option available. Reviewers specifically note these smooth the belly without pinching.
-- Price: ~$45-65 (often on sale 30-50% off)
+#### 20. AE Side-Tie Lace Trim Cami
+- https://www.ae.com/us/en/p/women/tops/shirts-blouses/ae-side-tie-lace-trim-cami/2351_6779_139
+- Feminine cami with side tie detail. Works under a blazer or on its own for hot days. On sale 30% off.
+- Price: ~$28 (sale from $40)
+
+#### 21. AE Off-the-Shoulder Americana Graphic T-Shirt
+- https://www.ae.com/us/en/p/women/tops/t-shirts/ae-off-the-shoulder-americana-graphic-t-shirt/1305_2089_139
+- Off-the-shoulder, red/white/blue graphic. Perfect for 4th of July in NYC. Relaxed fit.
+- Price: ~$25 (sale)
+
+#### 22. AE Cap-Sleeve Button-Up Top
+- https://www.ae.com/us/en/p/women/tops/shirts-blouses/ae-cap-sleeve-button-up-top/2351_7043_139
+- Cap-sleeve button-up. Clean, simple. Works with jeans for dinner or shorts for daytime.
+- Price: ~$30 (sale)
+
+#### 23. AE Oversized Star Graphic Cardigan Sweater
+- https://www.ae.com/us/en/p/women/tops/sweaters-cardigans/ae-oversized-star-graphic-cardigan-sweater/1340_1819_410
+- Bestseller. Lightweight cardigan for AC layer. Oversized fit. Online exclusive.
+- Price: ~$45
+
+#### 24. AE On a Roll Off-the-Shoulder Sweatshirt
+- https://www.ae.com/us/en/p/women/tops/hoodies-sweatshirts/ae-on-a-roll-off-the-shoulder-sweatshirt/1455_3104_587
+- Bestseller. Off-the-shoulder sweatshirt. Good for cooler NYC evenings.
+- Price: ~$40
+
+#### 25. AE American Flag Graphic Sweater
+- https://www.ae.com/us/en/p/women/tops/sweaters-cardigans/ae-american-flag-graphic-sweater/0341_1862_131
+- Online exclusive. Flag graphic. For 4th of July.
+- Price: ~$45
+
+#### 26. Aerie Women's Tops (collection)
+- https://www.ae.com/us/en/c/aerie/tops/cat6510072
+- Aerie's tops line. More relaxed and casual than AE. Sunnie tees and Off-shoulder tops are their bestsellers.
+- Price: ~$20-40
 
 ### HOLLISTER
 
-#### 25. Hollister Ultra High-Rise Wide Leg Jeans
-- https://www.hollisterco.com/shop/us/womens-bottoms-high-rise-jeans-jeans
-- TUMMY: Ultra high-rise waist smooths and holds the tummy. Wide leg balances. Stretch denim. Flattering fit per 4.5 star reviews from 310+ reviewers.
-- Price: ~$45-55
+#### 27. Hollister Women's Tops (collection)
+- https://www.hollisterco.com/shop/us/womens-tops
+- Trend-focused. Good budget options for casual tops and graphic tees. Younger aesthetic but the basics work for any age.
+- Price: ~$15-45
 
 ### COTTON ON
 
-#### 26. Cotton On Babydoll Tops (empire waist)
+#### 28. Cotton On Babydoll Tops (empire waist)
 - https://cottonon.com/US/co/women/women-clothing/womens-tops/womens-babydoll-tops/
-- TUMMY: Cotton On describes these as "relaxed, high-empire fit. Sits under the bust, then flares out for a breezy A-line shape." Literally the empire waist strategy at budget prices.
+- Relaxed, high-empire fit. Sits under the bust, flares out for a breezy A-line shape. Budget-friendly.
 - Price: ~$15-30
+
+#### 29. Cotton On Women's Tops (full collection)
+- https://cottonon.com/US/co/women/women-clothing/womens-tops/
+- Full tops collection. Basic tees, babydoll tops, blouses, and tanks. Best budget store in the mall.
+- Price: ~$10-30
 
 ### SOMA INTIMATES
 
-#### 27. Soma Vanishing Tummy Shapewear
-- https://www.soma.com/store/category/shapewear/cat40091
-- TUMMY: Underlayer shapewear that works under any of the dresses above. Light to mid-level compression. The Vanishing Tummy High-Leg Brief and Smoothing Cami are the key pieces.
-- Price: ~$39-58
-
-#### 28. Soma Smoothing Cami
+#### 30. Soma Smoothing Cami
 - https://www.soma.com/store/product/smoothing-cami/570321451
-- TUMMY: Mid-level compression and targeted zone shaping. Smooths the midsection without squeezing. Wear under any dress or top for a tummy-minimizing base layer.
+- Not a standalone top, but the essential underlayer. Mid-level compression smooths the midsection without squeezing. Wear under any of the tops above.
 - Price: ~$44-49
 
 ### UNTUCKIT
 
-#### 29. Untuckit Women's Tops (collection)
+#### 31. Untuckit Women's Tops (collection)
 - https://www.untuckit.com/collections/womens
-- TUMMY: Untuckit shirts are designed to be worn untucked at a specific length that covers the tummy area. Not empire waist, but the length strategy works. Look for their relaxed fit options.
+- Shirts designed to be worn untucked at a specific length. Casual button-ups and tees. The length is calibrated to hit at the right spot — not too long, not too short.
 - Price: ~$50-79
 
 ### LEVI'S
 
-#### 30. Levi's High-Waisted Women's Jeans (collection)
-- https://www.levis.com/US/en_US/category/women/jeans/high-rise-jeans/
-- TUMMY: High-rise jeans smooth and hold the midsection. Levi's offers multiple inseam options (good for 5'6"). The 721 High-Rise Skinny and 315 Shaping Bootcut have built-in tummy control panels.
-- Price: ~$50-98
+#### 32. Levi's Women's Tops (collection)
+- https://www.levis.com/US/en_US/category/women/clothing/tops/
+- Levi's has expanded beyond denim. Their basic tees and trucker jackets are well-made. Good for casual layering.
+- Price: ~$25-60
 
 ### JANELLE JAMES BOUTIQUE (local small business at Washington Square)
 
-#### 31. Kendall Fit and Flare Dress
-- https://www.janellejamesboutique.com/collections/hoco-dresses/products/kendall-fit-and-flare-dress
-- TUMMY: Fit-and-flare silhouette. Fitted bodice, skirt flares from the waist. Skims over the midsection without touching it.
-- Price: $78
+#### 33. Sweetheart Neckline Top
+- https://www.janellejamesboutique.com/collections/tops/products/sweetheart-neckline-top
+- Feminine sweetheart neckline. Dressy enough for dinner, casual enough for day.
+- Price: $36
 
-#### 32. Floral Ruched Midi Dress
-- https://www.janellejamesboutique.com/collections/hoco-dresses/products/floral-ruched-midi-dress-1
-- TUMMY: Ruching creates texture that camouflages the tummy. Midi length. Floral print draws the eye across, not to, the midsection.
-- Price: $78
+#### 34. Checker Print Off-Shoulder Top
+- https://www.janellejamesboutique.com/collections/tops/products/plaid-off-shoulder-top
+- Off-shoulder, checker print. Summer statement top.
+- Price: $48
 
-#### 33. Floral Maxi Dress with Ruffle Details
-- https://www.janellejamesboutique.com/collections/hoco-dresses/products/floral-maxi-dress-w-flat-ruffle-details-and-merrow-edge-finish
-- TUMMY: Maxi length + ruffle details add volume that camouflages the midsection. Floral print. Flowy silhouette.
-- Price: $109
+#### 35. Ribbed American Flag Patch Scoop Neck Tank Top
+- https://www.janellejamesboutique.com/collections/tops/products/ribbed-american-flag-patch-scoop-neck-tank-top
+- Flag patch detail. Perfect for 4th of July in NYC. Ribbed fabric, scoop neck.
+- Price: $28
+
+#### 36. Black Gingham Peplum Crop Tank
+- https://www.janellejamesboutique.com/collections/tops/products/black-gingham-peplum-crop-tank
+- Peplum silhouette, gingham print. Crop length. Stylish and summery.
+- Price: $32
+
+#### 37. Gingham Print Peplum Tank
+- https://www.janellejamesboutique.com/collections/tops/products/gigham-print-peplum-tank
+- Peplum, gingham. Budget-friendly. Two peplum options at different price points.
+- Price: $28
+
+#### 38. Tropical Button Down Shirt
+- https://www.janellejamesboutique.com/collections/tops/products/tropical-button-down-shirt
+- Tropical print button-up. Great for NYC summer vibes. Works open over a tank or buttoned up.
+- Price: $48
+
+#### 39. Chiffon Tank with Neck Scarf
+- https://www.janellejamesboutique.com/collections/tops/products/chiffon-tank-with-neck-scarf
+- Chiffon tank with built-in neck scarf detail. Dressy, feminine. Good for dinner out.
+- Price: $58
+
+#### 40. Faux Leather Tie-Up Tank
+- https://www.janellejamesboutique.com/collections/tops/products/faux-leather-tie-up-tank
+- Faux leather, tie-up detail. Edgier option for evening.
+- Price: $48
+
+#### 41. Knit Shrug
+- https://www.janellejamesboutique.com/collections/tops/products/knit-shrug
+- Lightweight layering piece. Perfect for AC in restaurants. Throws over any tank or dress.
+- Price: $38
+
+#### 42. Madi Lace Trim Corset Top
+- https://www.janellejamesboutique.com/collections/tops/products/maddie-lace-corset-top
+- Lace trim, corset-style. Dressier option for date night.
+- Price: $38
+
+#### 43. Janelle James USA Embroidery Hoodie
+- https://www.janellejamesboutique.com/collections/tops/products/boyfriends-usa-embroidery-hoodie
+- USA embroidery. For 4th of July evening when it cools down.
+- Price: $48
 
 ---
 
 ## STORES NOT INCLUDED (and why)
 
-- PINK / Victoria's Secret — lingerie, not outerwear
+- PINK / Victoria's Secret — lingerie, not outerwear tops
 - Coach, Pandora, Swarovski, etc. — jewelry/accessories
-- Bath & Body Works, LUSH, Kiehl's — beauty/body
+- Bath & Body Works, LUSH, Kiehl's, L'Occitane — beauty
 - Apple, AT&T, T-Mobile — tech
-- Foot Locker, Vans, Shoe Mill, Shiekh, Champs — shoes
-- Lululemon Align tank — too clingy for tummy, not recommended
-- Athleta Transcend Maxi (solid colors) — reviews say it clings to mom belly. Only recommended in ruched/color patterns
+- Foot Locker, Vans, Shoe Mill, Shiekh, Champs, Oakley — shoes
+- Garage — jeans/bottoms focus
+- lululemon Align tank alone — very clingy, better as a layering piece
+- Aritzia, Free People, Chico's, H&M, Mango — these sites block automated browsing (Cloudflare). Collection links provided above will work in a normal browser. Browse in person at the mall.
 
 ---
 
 ## PACKING LIST SUMMARY
 
-| # | Item | Store | Tummy Strategy | Price |
-|---|------|-------|---------------|-------|
-| 1 | Sam Edelman Floral Maxi Dress | Nordstrom | Defined waist + tiered skirt | ~$168 |
-| 2 | Halogen Sleeveless Peplum Top | Nordstrom | Peplum flare | ~$49-69 |
-| 3 | Popilush Shapewear Maxi Dress | Nordstrom | Built-in tummy control | ~$154 |
-| 4 | Stretch Knit Crepe Draped Tunic | Nordstrom | Draping + tunic length | ~$60-90 |
-| 5 | Empire Waist Midi Dresses | Nordstrom | Empire waist (collection) | ~$89-209 |
-| 6 | White Mark Empire Tunic Top | Macy's | Empire waist + drape | ~$40-52 |
-| 7 | Tummy Control Dresses | Macy's | Built-in shaping panel | ~$60-200 |
-| 8 | Empire Waist Maxi Dress | Macy's | Empire + maxi | ~$50-90 |
-| 9 | White Mark Ruffled Empire Dress | JCPenney | Empire + V-neck + ruffles | ~$42-45 |
-| 10 | Empire Waist Dress Collection | JCPenney | Empire waist (various) | ~$35-55 |
-| 11 | Wrap Dresses | Aritzia | Wrap silhouette | ~$98-248 |
-| 12 | Maxi Dresses | Free People | Flowy empire/babydoll | ~$98-168 |
-| 13 | Wrap Dresses | J.Crew | Wrap + structured fabric | ~$98-168 |
-| 14 | Wrap/Empire Dresses | Mango | Wrap + empire | ~$40-130 |
-| 15 | Peplum/Empire Tops | Chico's | Peplum + 40+ fit | ~$40-89 |
-| 16 | Empire/Wrap Dresses | H&M | Empire + wrap | ~$25-60 |
-| 17 | Peplum Tops & Dresses | Altar'd State | Peplum + A-line | ~$34-68 |
-| 18 | Transcend Maxi Dress | Athleta | Ruching + stretch | ~$83-139 |
-| 19 | Travel Clothing Collection | Athleta | Wrinkle-resistant travel | ~$49-109 |
-| 20 | Define Jacket (Nulu) | Lululemon | Sleek silhouette layer | ~$118 |
-| 21 | Long Sleeve Halo Wrap Top | Vuori | Wrap + tie waist | ~$88 |
-| 22 | Active Dresses | Fabletics | Fit-and-flare + built-in shorts | ~$25-60 |
-| 23 | High Rise Lift Wide Leg Jeans | Garage | High rise + wide leg | ~$45-65 |
-| 24 | Super High-Waisted Baggy Jeans | American Eagle | High rise + smoothing | ~$45-65 |
-| 25 | Ultra High-Rise Wide Leg Jeans | Hollister | Ultra high rise | ~$45-55 |
-| 26 | Babydoll Tops (empire) | Cotton On | Empire waist + A-line | ~$15-30 |
-| 27 | Vanishing Tummy Shapewear | Soma | Tummy control underlayer | ~$39-58 |
-| 28 | Smoothing Cami | Soma | Mid-level compression | ~$44-49 |
-| 29 | Women's Untucked Tops | Untuckit | Length covers tummy | ~$50-79 |
-| 30 | High-Waisted Jeans (721/315) | Levi's | High rise + tummy control | ~$50-98 |
-| 31 | Kendall Fit and Flare Dress | Janelle James | Fit-and-flare | $78 |
-| 32 | Floral Ruched Midi Dress | Janelle James | Ruching camouflages | $78 |
-| 33 | Floral Maxi w/ Ruffles | Janelle James | Maxi + ruffle volume | $109 |
+| # | Item | Store | Price |
+|---|------|-------|-------|
+| 1 | Halogen Peplum Top | Nordstrom | ~$49-69 |
+| 2 | Nordstrom Tops (collection) | Nordstrom | ~$30-200 |
+| 3 | White Mark Empire Tunic | Macy's | ~$40-52 |
+| 4 | Macy's Tops (collection) | Macy's | ~$25-80 |
+| 5 | JCPenney Tops (collection) | JCPenney | ~$15-45 |
+| 6 | Aritzia Tops (collection) | Aritzia | ~$48-148 |
+| 7 | Free People Tops (collection) | Free People | ~$48-98 |
+| 8 | J.Crew Shirts & Blouses | J.Crew | ~$50-98 |
+| 9 | Mango Tops (collection) | Mango | ~$20-60 |
+| 10 | Chico's Tops (collection) | Chico's | ~$40-89 |
+| 11 | H&M Tops (collection) | H&M | ~$10-40 |
+| 12 | Altar'd State Tops (collection) | Altar'd State | ~$24-48 |
+| 13 | Athleta Tank Tops | Athleta | ~$39-69 |
+| 14 | Athleta Short Sleeve Tops | Athleta | ~$39-59 |
+| 15 | Define Jacket (Nulu) | Lululemon | ~$118 |
+| 16 | Lululemon Tops (collection) | Lululemon | ~$38-118 |
+| 17 | Halo Wrap Top | Vuori | ~$88 |
+| 18 | Vuori Tops (collection) | Vuori | ~$44-88 |
+| 19 | Fabletics Tops (collection) | Fabletics | ~$15-40 |
+| 20 | AE Side-Tie Lace Cami | American Eagle | ~$28 |
+| 21 | AE Off-Shoulder Americana Tee | American Eagle | ~$25 |
+| 22 | AE Cap-Sleeve Button-Up | American Eagle | ~$30 |
+| 23 | AE Star Graphic Cardigan | American Eagle | ~$45 |
+| 24 | AE Off-Shoulder Sweatshirt | American Eagle | ~$40 |
+| 25 | AE Flag Graphic Sweater | American Eagle | ~$45 |
+| 26 | Aerie Tops (collection) | Aerie | ~$20-40 |
+| 27 | Hollister Tops (collection) | Hollister | ~$15-45 |
+| 28 | Cotton On Babydoll Tops | Cotton On | ~$15-30 |
+| 29 | Cotton On Tops (collection) | Cotton On | ~$10-30 |
+| 30 | Soma Smoothing Cami | Soma | ~$44-49 |
+| 31 | Untuckit Tops (collection) | Untuckit | ~$50-79 |
+| 32 | Levi's Tops (collection) | Levi's | ~$25-60 |
+| 33 | Sweetheart Neckline Top | Janelle James | $36 |
+| 34 | Checker Print Off-Shoulder | Janelle James | $48 |
+| 35 | Flag Patch Scoop Neck Tank | Janelle James | $28 |
+| 36 | Black Gingham Peplum Tank | Janelle James | $32 |
+| 37 | Gingham Peplum Tank | Janelle James | $28 |
+| 38 | Tropical Button Down | Janelle James | $48 |
+| 39 | Chiffon Tank w/ Neck Scarf | Janelle James | $58 |
+| 40 | Faux Leather Tie-Up Tank | Janelle James | $48 |
+| 41 | Knit Shrug | Janelle James | $38 |
+| 42 | Madi Lace Corset Top | Janelle James | $38 |
+| 43 | USA Embroidery Hoodie | Janelle James | $48 |
 
-**Budget pick (5 pieces):** Cotton On babydoll top ($20) + AE wide-leg jeans ($50) + JCPenney empire dress ($42) + Soma Smoothing Cami ($44) + H&M wrap dress ($35) = **~$191**
+**Budget pick (5 tops):** Cotton On babydoll ($20) + AE off-shoulder tee ($25) + Janelle James flag tank ($28) + Janelle James gingham peplum ($28) + H&M blouse ($20) = **~$121**
 
-**Mid-range pick (5 pieces):** Macy's empire tunic ($45) + Athleta Transcend maxi ($99) + Garage high-rise jeans ($55) + Chico's peplum top ($60) + Janelle James ruched midi ($78) = **~$337**
+**Mid-range pick (5 tops):** Chico's top ($60) + J.Crew popover ($70) + Vuori Halo wrap ($88) + AE lace cami ($28) + Janelle James tropical button-down ($48) = **~$294**
 
-**Premium pick (5 pieces):** Sam Edelman floral maxi ($168) + Aritzia wrap dress ($148) + Lululemon Define jacket ($118) + Vuori Halo wrap top ($88) + Popilush shapewear dress ($154) = **~$676**
+**Premium pick (5 tops):** Aritzia Babaton top ($120) + Lululemon Define jacket ($118) + Free People blouse ($78) + Nordstrom Halogen peplum ($59) + Vuori wrap top ($88) = **~$463**
 
 ---
 
-## NYC OUTFIT FORMULAS
+## NYC TOP OUTFIT FORMULAS
 
-| Situation | Formula |
-|-----------|---------|
-| Sightseeing day (hot) | Empire waist maxi dress + Soma smoothing cami underneath |
-| Museum / indoor day (AC) | Babydoll top (Cotton On) + high-waisted jeans (AE/Garage) + Define jacket (Lululemon) |
-| Dinner out | Sam Edelman floral maxi (Nordstrom) or Aritzia wrap dress or Janelle James ruched midi |
-| Fourth of July festivities | JCPenney ruffled empire dress (red/blue/white) or Athleta Transcend maxi |
-| Lunch / casual daytime | Chico's peplum top + wide-leg jeans |
-| Rainy day | Mango wrap midi dress — quick-dry, no clinging |
-| Evening walk | Vuori Halo wrap top + jeans + light jacket |
-| Active/sightseeing | Fabletics active dress — built-in shorts, shelf bra, fit-and-flare |
+| Situation | Top + Bottom |
+|-----------|-------------|
+| Sightseeing (hot) | AE lace cami + high-waisted shorts |
+| Museum / indoor (AC) | J.Crew popover shirt + jeans + AE cardigan |
+| Dinner out | Aritzia blouse or Janelle James chiffon tank + dark jeans |
+| Fourth of July | Janelle James flag tank or AE Americana tee + white jeans/shorts |
+| Casual lunch | Cotton On babydoll + denim |
+| Evening walk | Vuori Halo wrap top + jeans |
+| Rainy day | J.Crew button-up + jeans + AE sweatshirt |
+| Active/sightseeing | Athleta tank + athletic shorts |
 
 ---
 
 ## SHOPPING ROUTE FOR WASHINGTON SQUARE MALL
 
-All stores on one level. Efficient route:
-
-1. NORDSTROM (start here — largest selection, try Sam Edelman, Popilush, Halogen)
-2. ARITZIA (next to Nordstrom — premium wraps, structured fabrics)
-3. FREE PEOPLE (flowy bohemian maxis)
-4. J.CREW (wraps and structured blazers)
-5. MANGO (budget-mid wraps and empire)
-6. CHICO'S (40+ fit expertise — ask staff for tummy-friendly recommendations)
-7. ATHLETA (travel dresses and rompers)
-8. LULULEMON (Define jacket for layering)
-9. VUORI (wrap tops)
-10. AMERICAN EAGLE / AERIE (high-waisted jeans)
-11. GARAGE (budget jeans)
-12. HOLLISTER (budget jeans)
-13. COTTON ON (budget babydoll tops)
-14. ALTAR'D STATE (peplum and A-line dresses)
-15. H&M (budget wrap dresses)
-16. FABLETICS (active dresses)
-17. SOMA (shapewear underlayers — get sized by staff)
-18. UNTUCKIT (untucked-length tops)
-19. LEVI'S (high-waisted jeans with tummy control)
-20. JANELLE JAMES BOUTIQUE (local — fit-and-flare and ruched dresses)
-21. MACY'S (tummy control section, empire maxis)
-22. JCPENNEY (budget empire dresses — finish here)
+1. NORDSTROM (start — try Halogen peplum, browse BP and Caslon)
+2. ARITZIA (premium, structured — ask staff for styling help)
+3. FREE PEOPLE (flowy bohemian)
+4. J.CREW (classic button-ups and popovers)
+5. MANGO (European-cut, affordable)
+6. CHICO'S (40+ expertise — ask staff for help)
+7. ALTAR'D STATE (feminine, flowy)
+8. ATHLETA (travel-friendly tanks)
+9. LULULEMON (Define jacket + Swiftly Tech tops)
+10. VUORI (Halo wrap top)
+11. FABLETICS (budget activewear tops)
+12. AMERICAN EAGLE / AERIE (sale prices on camis and tees)
+13. HOLLISTER (budget basics)
+14. COTTON ON (budget babydolls and tees)
+15. SOMA (smoothing cami underlayer — get sized)
+16. UNTUCKIT (calibrated-length button-ups)
+17. LEVI'S (basic tees and trucker jackets)
+18. JANELLE JAMES BOUTIQUE (local — best selection of summer tops at good prices)
+19. MACY'S (Charter Club, Bar III, White Mark)
+20. JCPENNEY (budget basics — finish here)
 
 Sizing tips:
-- Denise is 5'6" — midi and maxi will hit mid-calf to ankle (flattering zone)
-- All stores offer regular and plus sizing
-- Nordstrom offers free basic alterations (hemming)
-- Try everything on — empire waist placement varies by brand
-- Soma offers free bra fittings (worth doing for shapewear sizing)
-- Chico's staff are trained in body-type styling — ask for help
-- If between sizes, size down for empire waist (fit is above the tummy)
-
----
-
-## WHAT TO AVOID
-
-- Shapeless/boxy cuts — add bulk, swallow the frame
-- Clingy knits — show every line including the tummy
-- Super low-rise anything — unflattering and uncomfortable
-- Polyester-heavy fabrics — trap heat and moisture in NYC humidity
-- Belts at the natural waist — draw attention to the tummy
-- Solid-color bodycon dresses without ruching or structure
-- Lululemon Align tank worn alone — too clingy for tummy area
+- Denise is 5'6" — regular length works well
+- Nordstrom offers free basic alterations
+- Soma offers free bra fittings (worth doing for cami sizing)
+- Chico's staff are trained in body-type styling
+- AE/aerie often run 30-50% sales — check before buying
+- Cotton On runs slightly large — size down if between
 
 ---
 
