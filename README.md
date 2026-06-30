@@ -2,169 +2,369 @@
 
 Wardrobe research for Denise: turning 40, mom bod, 5'6", traveling to New York City for July 4th holiday (summer, hot and humid, 85-95F).
 
-Clothing only. All items available at Washington Square Mall (Tigard, OR) department stores: Nordstrom, Macy's, JCPenney. Focus: tummy-minimizing styles.
+Clothing only. All items available at Washington Square Mall (Tigard, OR) clothing stores. Focus: tummy-minimizing styles. Links to merchandise where possible.
 
 ## The Strategy: How to Minimize the Tummy
 
-Five silhouettes that work. Every item below uses one or more of these:
+Five silhouettes that work. Every item below uses one or more:
 
-1. EMPIRE WAIST — waistline sits just below the bust, fabric flows freely over the midsection. The single most effective tummy-minimizing cut.
-2. WRAP — fabric crosses over the front and ties at the waist, creating a V-neck that draws the eye up and a waistline that sits above the tummy.
-3. PEPLUM — fitted at the natural waist, flares out over the tummy. The flare camouflages without clinging.
-4. FIT-AND-FLARE / A-LINE — fitted bodice, skirt flares from the waist. Skims over the midsection without touching it.
-5. BUILT-IN SHAPEWEAR — dresses with integrated tummy control panels. Does the work without a separate shapewear layer.
+1. EMPIRE WAIST — waistline sits just below the bust, fabric flows freely over the midsection
+2. WRAP — fabric crosses and ties at the waist, V-neck draws the eye up, waistline sits above the tummy
+3. PEPLUM — fitted at the natural waist, flares out over the tummy
+4. FIT-AND-FLARE / A-LINE — fitted bodice, skirt flares from the waist, skims over the midsection
+5. BUILT-IN SHAPEWEAR / TUMMY CONTROL — dresses and underlayers with integrated tummy panels
 
 Additional principles:
-- Ruching and draping create texture that camouflages the tummy area
-- Darker colors on the bottom half, lighter or printed on top (draws the eye upward)
+- Ruching and draping create texture that camouflages
+- Darker colors on the bottom, lighter or printed on top (draws the eye up)
 - Structured fabrics hold their shape rather than clinging
-- Midi and maxi lengths are most flattering at 5'6" and most comfortable in NYC humidity
-- Avoid: shapeless/boxy cuts (add bulk), clingy knits (show every line), super low-rise anything
-
-## NYC Summer Context
-
-New York in July is hot, humid, and involves a lot of walking. Outfits need to handle:
-- Long days on foot (sightseeing, subway stairs, blocks between stops)
-- Transitions from daytime casual to dinner-appropriate
-- Humidity — breathable fabrics are non-negotiable (linen, cotton, rayon blends)
-- Light rain possibility
-- Fourth of July festivities — red/white/blue accents if she wants to lean in
-- Heavy AC in restaurants and subway cars — a lightweight layer is practical
+- Midi and maxi lengths most flattering at 5'6" and most comfortable in humidity
+- Avoid: shapeless/boxy cuts, clingy knits, super low-rise, belts at the natural waist
 
 ---
 
-## The Wardrobe — 9 Pieces from Washington Square Mall
+## DEPARTMENT STORES
 
 ### NORDSTROM (Oregon's largest, anchor store)
 
 #### 1. Sam Edelman Etched Floral Print Maxi Dress
 - https://www.nordstrom.com/s/sam-edelman-etched-floral-print-maxi-dress/6942464
-- WHY IT WORKS: Defined waist sits above the natural waistline (near empire), tiered ruffled skirt flows over the tummy. Floral print draws the eye across the whole dress, not the midsection. Sleeveless for heat. Stretch lining for smooth drape.
-- TUMMY SCORE: High. Defined waist + tiered skirt = the fabric never clings to the midsection.
+- TUMMY: Defined waist sits above natural waistline (near empire), tiered ruffled skirt flows over the tummy. Floral print draws the eye across the whole dress.
 - Price: ~$168
-- WEAR IT: Dinner, date night, 4th of July evening out. Dress up with heels or down with flat sandals.
 
 #### 2. Halogen Sleeveless Peplum Top
 - https://www.nordstrom.com/s/halogen-sleeveless-peplum-top/7342574
-- WHY IT WORKS: Peplum flare starts at the waist and falls over the tummy. The ruffled hem creates volume that hides what's underneath. Jewel neck is flattering on a fuller bust. Sleeveless for summer heat.
-- TUMMY SCORE: High. This is the peplum silhouette doing its job — fitted at the waist, flaring over the tummy.
-- Price: ~$49-69 (Nordstrom house brand, typically affordable)
-- WEAR IT: With jeans or linen pants for sightseeing + lunch. Tuck the front slightly for shape.
+- TUMMY: Peplum flare starts at the waist and falls over the tummy. Ruffled hem creates volume that hides what's underneath.
+- Price: ~$49-69
 
 #### 3. Popilush Built-in Shapewear Draped High Neck Maxi Dress
 - https://www.nordstrom.com/s/built-in-shapewear-draped-high-neck-maxi-dress/8745880
-- WHY IT WORKS: Built-in 3-in-1 shapewear handles tummy control and waist sculpting inside the dress. No separate shapewear layer in summer heat. Draped high neckline is elegant. Floral print camouflages.
-- TUMMY SCORE: Highest. Tummy control is literally built into the garment.
+- TUMMY: Built-in 3-in-1 shapewear for tummy control and waist sculpting. No separate shapewear layer in summer heat.
 - Price: ~$154
-- WEAR IT: Nice dinner, any occasion where she wants to feel put-together without thinking about it.
 
 #### 4. Stretch Knit Crepe Draped Tunic (also available in plus)
 - https://www.nordstrom.com/s/stretch-knit-crepe-draped-tunic-plus/9140419
-- WHY IT WORKS: Fluid draping creates folds that camouflage the midsection. Sleeveless tunic length covers the tummy area entirely. Crepe fabric is structured enough to hold its shape without clinging.
-- TUMMY SCORE: High. Draping + tunic length = nothing touches the tummy directly.
+- TUMMY: Fluid draping creates folds that camouflage the midsection. Tunic length covers the tummy entirely. Crepe fabric holds shape without clinging.
 - Price: ~$60-90
-- WEAR IT: Over jeans or wide-leg pants for a daytime look. Works with the blazer underneath for AC.
+
+#### 5. Nordstrom Empire Waist Midi Dresses (collection)
+- https://www.nordstrom.com/browse/women/clothing/dresses/midi?filterByStyle=empire-waist
+- TUMMY: Empire waist collection. Multiple brands and styles. Browse in-store.
+- Price: ~$89-209
 
 ### MACY'S
 
-#### 5. White Mark Empire Waist Tunic Top
+#### 6. White Mark Empire Waist Tunic Top
 - https://www.macys.com/shop/product/white-mark-womens-empire-waist-tunic-top?ID=16207973
-- WHY IT WORKS: Empire waistband sits just below the bust. Fabric drapes freely from there over the entire midsection. Soft fabric drapes beautifully per reviews. Tunic length covers past the tummy.
-- TUMMY SCORE: High. Empire waist is the #1 tummy-minimizing cut per styling research.
+- TUMMY: Empire waistband sits below the bust. Fabric drapes freely over the entire midsection. Soft fabric drapes beautifully per reviews.
 - Price: ~$40-52
-- WEAR IT: With jeans, linen pants, or over a slim dress. Casual daytime piece.
 
-#### 6. Macy's Tummy Control Dresses (Charter Club and others)
+#### 7. Macy's Tummy Control Dresses (Charter Club and others)
 - https://www.macys.com/shop/featured/tummy-control-dresses
-- WHY IT WORKS: Macy's has a dedicated tummy-control dress category. Charter Club pull-on shaping dresses and sculpting sweetheart midi dresses with built-in tummy control panels. Boat neck and twist-front V-neck options.
-- TUMMY SCORE: Highest. Built-in tummy control panels.
-- Price: ~$60-200 (varies by brand; Charter Club is the budget-friendly option, Lauren Ralph Lauren and others are higher)
-- WEAR IT: Check the section in-store at Macy's Washington Square. Try the Charter Club Boat Neck Pull-On Shaping Dress (~$89) for everyday and the Sculpting Sweetheart Midi (~$112) for dinner.
+- TUMMY: Built-in tummy control panels. Charter Club pull-on shaping dress and sculpting sweetheart midi. Boat neck and twist-front V-neck options.
+- Price: ~$60-200
 
-#### 7. Macy's Empire Waist Maxi Dress
+#### 8. Macy's Empire Waist Maxi Dress Collection
 - https://www.macys.com/shop/featured/empire-waist-maxi-dress
-- WHY IT WORKS: Empire waist maxi dresses flow from above the tummy to the ankle. Nothing touches the midsection. Macy's has multiple options including V-neck maxi dresses with empire waist.
-- TUMMY SCORE: High. Empire + maxi = maximum tummy coverage with minimal clinging.
+- TUMMY: Empire waist + maxi length = maximum tummy coverage. V-neck maxi options.
 - Price: ~$50-90
-- WEAR IT: Hot walking days, sightseeing, casual dinners. The throw-on-and-go dress.
 
 ### JCPENNEY
 
-#### 8. White Mark V-Neck Short Sleeve Ruffled Empire Waist Dress
+#### 9. White Mark V-Neck Short Sleeve Ruffled Empire Waist Dress
 - https://www.jcpenney.com/g/women/dresses?dress_type=empire+waist+dresses&id=cat100210008
-- WHY IT WORKS: Empire waist, V-neck draws the eye up and elongates the neck (flattering on a fuller bust). Short sleeves cover the upper arms. Ruffled detail adds texture that camouflages. Available in regular and plus.
-- TUMMY SCORE: High. Empire waist + V-neck + ruffles — three tummy-minimizing features in one dress.
-- Price: ~$42-45 (with JCPenney codes often less)
-- WEAR IT: Daytime, sightseeing, casual lunch. Breathable for summer heat with short sleeves.
+- TUMMY: Empire waist + V-neck draws the eye up + ruffled detail adds camouflaging texture. Regular and plus sizes.
+- Price: ~$42-45
 
-#### 9. JCPenney Empire Waist Dress Collection
+#### 10. JCPenney Empire Waist Dress Collection
 - https://www.jcpenney.com/g/women/dresses?dress_type=empire+waist+dresses&id=cat100210008
-- WHY IT WORKS: JCPenney has a curated empire waist dress collection from White Mark and other brands. Multiple colors, lengths, and sleeve options. All empire waist = all tummy-minimizing.
-- TUMMY SCORE: High by design — the entire collection is empire waist.
+- TUMMY: Entire collection is empire waist. Multiple brands, colors, lengths. Best budget option.
 - Price: ~$35-55
-- WEAR IT: Browse the full collection in-store at JCPenney Washington Square. Best budget option of the three stores.
 
 ---
 
-## Packing List Summary
+## SPECIALTY CLOTHING STORES
+
+### ARITZIA
+
+#### 11. Aritzia Wrap Dresses (collection)
+- https://www.aritzia.com/en/clothing/dresses?category=Wrap
+- TUMMY: Wrap silhouette defines the waist above the tummy and creates a V-neck that draws the eye upward. Aritzia carries premium brands like Babaton and Wilfred with structured fabrics that hold shape.
+- Price: ~$98-248
+- Note: Aritzia also has an in-house tailoring service for hemming.
+
+### FREE PEOPLE
+
+#### 12. Free People Maxi Dresses (collection)
+- https://www.freepeople.com/clothing/dresses/maxi-dresses/
+- TUMMY: Free People specializes in flowy, bohemian silhouettes. Maxi dresses with empire and babydoll cuts that skim over the midsection. Look for their "Movement" and "Sandy" fits.
+- Price: ~$98-168
+
+### J.CREW
+
+#### 13. J.Crew Wrap Dresses (collection)
+- https://www.jcrew.com/c/womens/categories/clothing/dresses/wrap-dresses
+- TUMMY: Wrap silhouettes with structured fabrics. J.Crew's Madelyn blazer is also a good layering piece for AC.
+- Price: ~$98-168
+
+### MANGO
+
+#### 14. Mango Wrap and Empire Dresses (collection)
+- https://shop.mango.com/us/women/dresses
+- TUMMY: Mango has a wide selection of empire waist and wrap dresses at accessible price points. European cut, slightly more tailored. Look for their midi and maxi lengths.
+- Price: ~$40-130
+
+### CHICO'S
+
+#### 15. Chico's Empire Waist and Peplum Tops
+- https://www.chicos.com/clothing/tops/
+- TUMMY: Chico's specifically targets women 40+ and designs for real bodies. Their peplum and empire waist tops are cut to skim the midsection. Also carry tummy-control bottoms.
+- Price: ~$40-89
+- Note: Best store for 40+ fit expertise. Staff trained in body-type styling.
+
+### H&M
+
+#### 16. H&M Empire Waist and Wrap Dresses
+- https://www2.hm.com/en_us/women/categories/dresses.html
+- TUMMY: Budget-friendly empire waist and wrap dress options. Look for their "Premium" and "Divided" lines. Good for trend pieces that don't need to last forever.
+- Price: ~$25-60
+
+### ALTAR'D STATE
+
+#### 17. Altar'd State Dresses and Peplum Tops
+- https://www.altardstate.com/clothing/dresses
+- TUMMY: Altar'd State carries feminine, flowy silhouettes including peplum tops and empire waist dresses. Their "Bless Your Heart" and "Angel" fits tend toward tummy-friendly A-line cuts.
+- Price: ~$34-68
+
+### ATHLETA
+
+#### 18. Athleta Transcend Maxi Dress
+- https://athleta.gap.com/browse/product.do?pid=844284032
+- TUMMY: Ruching at the waist creates camouflaging texture. VitaFree stretch fabric is lightweight for NYC humidity. Adjustable straps. Shelf bra for support. Reviews note it does fit snugly but ruching is flattering.
+- Price: ~$83-139 (often on sale)
+
+#### 19. Athleta Travel Clothing Collection
+- https://athleta.gap.com/shop/womens-travel-clothes-0aaz48b
+- TUMMY: Wrinkle-resistant, quick-dry travel pieces. The It's a Wrap Romper and Journey Dress are one-and-done options designed for travel. Good for NYC walking days.
+- Price: ~$49-109
+
+### LULULEMON
+
+#### 20. Lululemon Define Jacket (Nulu fabric)
+- https://shop.lululemon.com/p/jackets-and-hoodies-jackets/Define-Jacket-Nulu/_/prod11020158
+- TUMMY: The Define jacket is Lululemon's most reviewed piece for "snatching" effect. Skims the body and sits below the waistband for moderate coverage. Perfect AC layer that doubles as a light jacket for NYC evenings.
+- Price: ~$118
+- Note: Reviews say it's not a miracle worker for the tummy but creates a sleek silhouette. Size down for compression, true to size for relaxed.
+
+### VUORI
+
+#### 21. Vuori Long Sleeve Halo Wrap Top
+- https://vuoriclothing.com/products/womens-long-sleeve-halo-wrap-top-pale-grey-heather
+- TUMMY: Wrap silhouette creates a V-neck (draws the eye up) and the tie waist sits above the tummy. Insanely soft brushed jersey knit. 89% recycled fabric.
+- Price: ~$88
+- Note: Technically activewear but reads as a stylish everyday top. Perfect for travel days.
+
+### FABLETICS
+
+#### 22. Fabletics Active Dresses (collection)
+- https://www.fabletics.com/collections/dresses
+- TUMMY: Active dresses with built-in shorts and shelf bras. Fit-and-flare silhouettes. Midsize reviewers specifically praise Fabletics for tummy-friendly cuts. Good for sightseeing days.
+- Price: ~$25-60 (VIP pricing)
+
+### GARAGE
+
+#### 23. Garage High Rise Lift Wide Leg Jeans
+- https://www.garageclothing.com/us/p/high-rise-lift-jeans/10010409207I.html
+- TUMMY: High rise (11") smooths the midsection. Wide leg balances proportions. Stretchy denim holds shape. Budget-friendly.
+- Price: ~$45-65
+
+### AMERICAN EAGLE / AERIE
+
+#### 24. AE Super High-Waisted Baggy Wide-Leg Jeans
+- https://www.ae.com/us/en/p/women/jeans/baggy-wide-leg-jeans/ae-super-high-waisted-baggy-wide-leg-jean/0437_5350_857
+- TUMMY: Super high waist (11.25" rise) holds in the tummy. Wide leg elongates. "Dreamy Drape" fabric is soft and stretchy. Curvy option available. Reviewers specifically note these smooth the belly without pinching.
+- Price: ~$45-65 (often on sale 30-50% off)
+
+### HOLLISTER
+
+#### 25. Hollister Ultra High-Rise Wide Leg Jeans
+- https://www.hollisterco.com/shop/us/womens-bottoms-high-rise-jeans-jeans
+- TUMMY: Ultra high-rise waist smooths and holds the tummy. Wide leg balances. Stretch denim. Flattering fit per 4.5 star reviews from 310+ reviewers.
+- Price: ~$45-55
+
+### COTTON ON
+
+#### 26. Cotton On Babydoll Tops (empire waist)
+- https://cottonon.com/US/co/women/women-clothing/womens-tops/womens-babydoll-tops/
+- TUMMY: Cotton On describes these as "relaxed, high-empire fit. Sits under the bust, then flares out for a breezy A-line shape." Literally the empire waist strategy at budget prices.
+- Price: ~$15-30
+
+### SOMA INTIMATES
+
+#### 27. Soma Vanishing Tummy Shapewear
+- https://www.soma.com/store/category/shapewear/cat40091
+- TUMMY: Underlayer shapewear that works under any of the dresses above. Light to mid-level compression. The Vanishing Tummy High-Leg Brief and Smoothing Cami are the key pieces.
+- Price: ~$39-58
+
+#### 28. Soma Smoothing Cami
+- https://www.soma.com/store/product/smoothing-cami/570321451
+- TUMMY: Mid-level compression and targeted zone shaping. Smooths the midsection without squeezing. Wear under any dress or top for a tummy-minimizing base layer.
+- Price: ~$44-49
+
+### UNTUCKIT
+
+#### 29. Untuckit Women's Tops (collection)
+- https://www.untuckit.com/collections/womens
+- TUMMY: Untuckit shirts are designed to be worn untucked at a specific length that covers the tummy area. Not empire waist, but the length strategy works. Look for their relaxed fit options.
+- Price: ~$50-79
+
+### LEVI'S
+
+#### 30. Levi's High-Waisted Women's Jeans (collection)
+- https://www.levis.com/US/en_US/category/women/jeans/high-rise-jeans/
+- TUMMY: High-rise jeans smooth and hold the midsection. Levi's offers multiple inseam options (good for 5'6"). The 721 High-Rise Skinny and 315 Shaping Bootcut have built-in tummy control panels.
+- Price: ~$50-98
+
+### JANELLE JAMES BOUTIQUE (local small business at Washington Square)
+
+#### 31. Kendall Fit and Flare Dress
+- https://www.janellejamesboutique.com/collections/hoco-dresses/products/kendall-fit-and-flare-dress
+- TUMMY: Fit-and-flare silhouette. Fitted bodice, skirt flares from the waist. Skims over the midsection without touching it.
+- Price: $78
+
+#### 32. Floral Ruched Midi Dress
+- https://www.janellejamesboutique.com/collections/hoco-dresses/products/floral-ruched-midi-dress-1
+- TUMMY: Ruching creates texture that camouflages the tummy. Midi length. Floral print draws the eye across, not to, the midsection.
+- Price: $78
+
+#### 33. Floral Maxi Dress with Ruffle Details
+- https://www.janellejamesboutique.com/collections/hoco-dresses/products/floral-maxi-dress-w-flat-ruffle-details-and-merrow-edge-finish
+- TUMMY: Maxi length + ruffle details add volume that camouflages the midsection. Floral print. Flowy silhouette.
+- Price: $109
+
+---
+
+## STORES NOT INCLUDED (and why)
+
+- PINK / Victoria's Secret — lingerie, not outerwear
+- Coach, Pandora, Swarovski, etc. — jewelry/accessories
+- Bath & Body Works, LUSH, Kiehl's — beauty/body
+- Apple, AT&T, T-Mobile — tech
+- Foot Locker, Vans, Shoe Mill, Shiekh, Champs — shoes
+- Lululemon Align tank — too clingy for tummy, not recommended
+- Athleta Transcend Maxi (solid colors) — reviews say it clings to mom belly. Only recommended in ruched/color patterns
+
+---
+
+## PACKING LIST SUMMARY
 
 | # | Item | Store | Tummy Strategy | Price |
 |---|------|-------|---------------|-------|
 | 1 | Sam Edelman Floral Maxi Dress | Nordstrom | Defined waist + tiered skirt | ~$168 |
-| 2 | Halogen Sleeveless Peplum Top | Nordstrom | Peplum flare over tummy | ~$49-69 |
+| 2 | Halogen Sleeveless Peplum Top | Nordstrom | Peplum flare | ~$49-69 |
 | 3 | Popilush Shapewear Maxi Dress | Nordstrom | Built-in tummy control | ~$154 |
 | 4 | Stretch Knit Crepe Draped Tunic | Nordstrom | Draping + tunic length | ~$60-90 |
-| 5 | White Mark Empire Waist Tunic Top | Macy's | Empire waist + drape | ~$40-52 |
-| 6 | Tummy Control Dress (Charter Club) | Macy's | Built-in shaping panel | ~$60-200 |
-| 7 | Empire Waist Maxi Dress | Macy's | Empire + maxi length | ~$50-90 |
-| 8 | White Mark Ruffled Empire Dress | JCPenney | Empire + V-neck + ruffles | ~$42-45 |
-| 9 | Empire Waist Dress Collection | JCPenney | Empire waist (various) | ~$35-55 |
+| 5 | Empire Waist Midi Dresses | Nordstrom | Empire waist (collection) | ~$89-209 |
+| 6 | White Mark Empire Tunic Top | Macy's | Empire waist + drape | ~$40-52 |
+| 7 | Tummy Control Dresses | Macy's | Built-in shaping panel | ~$60-200 |
+| 8 | Empire Waist Maxi Dress | Macy's | Empire + maxi | ~$50-90 |
+| 9 | White Mark Ruffled Empire Dress | JCPenney | Empire + V-neck + ruffles | ~$42-45 |
+| 10 | Empire Waist Dress Collection | JCPenney | Empire waist (various) | ~$35-55 |
+| 11 | Wrap Dresses | Aritzia | Wrap silhouette | ~$98-248 |
+| 12 | Maxi Dresses | Free People | Flowy empire/babydoll | ~$98-168 |
+| 13 | Wrap Dresses | J.Crew | Wrap + structured fabric | ~$98-168 |
+| 14 | Wrap/Empire Dresses | Mango | Wrap + empire | ~$40-130 |
+| 15 | Peplum/Empire Tops | Chico's | Peplum + 40+ fit | ~$40-89 |
+| 16 | Empire/Wrap Dresses | H&M | Empire + wrap | ~$25-60 |
+| 17 | Peplum Tops & Dresses | Altar'd State | Peplum + A-line | ~$34-68 |
+| 18 | Transcend Maxi Dress | Athleta | Ruching + stretch | ~$83-139 |
+| 19 | Travel Clothing Collection | Athleta | Wrinkle-resistant travel | ~$49-109 |
+| 20 | Define Jacket (Nulu) | Lululemon | Sleek silhouette layer | ~$118 |
+| 21 | Long Sleeve Halo Wrap Top | Vuori | Wrap + tie waist | ~$88 |
+| 22 | Active Dresses | Fabletics | Fit-and-flare + built-in shorts | ~$25-60 |
+| 23 | High Rise Lift Wide Leg Jeans | Garage | High rise + wide leg | ~$45-65 |
+| 24 | Super High-Waisted Baggy Jeans | American Eagle | High rise + smoothing | ~$45-65 |
+| 25 | Ultra High-Rise Wide Leg Jeans | Hollister | Ultra high rise | ~$45-55 |
+| 26 | Babydoll Tops (empire) | Cotton On | Empire waist + A-line | ~$15-30 |
+| 27 | Vanishing Tummy Shapewear | Soma | Tummy control underlayer | ~$39-58 |
+| 28 | Smoothing Cami | Soma | Mid-level compression | ~$44-49 |
+| 29 | Women's Untucked Tops | Untuckit | Length covers tummy | ~$50-79 |
+| 30 | High-Waisted Jeans (721/315) | Levi's | High rise + tummy control | ~$50-98 |
+| 31 | Kendall Fit and Flare Dress | Janelle James | Fit-and-flare | $78 |
+| 32 | Floral Ruched Midi Dress | Janelle James | Ruching camouflages | $78 |
+| 33 | Floral Maxi w/ Ruffles | Janelle James | Maxi + ruffle volume | $109 |
 
-**Estimated total (if buying all 9): ~$600-775**
-**Realistic pick of 4-5 for the trip: ~$200-400**
+**Budget pick (5 pieces):** Cotton On babydoll top ($20) + AE wide-leg jeans ($50) + JCPenney empire dress ($42) + Soma Smoothing Cami ($44) + H&M wrap dress ($35) = **~$191**
+
+**Mid-range pick (5 pieces):** Macy's empire tunic ($45) + Athleta Transcend maxi ($99) + Garage high-rise jeans ($55) + Chico's peplum top ($60) + Janelle James ruched midi ($78) = **~$337**
+
+**Premium pick (5 pieces):** Sam Edelman floral maxi ($168) + Aritzia wrap dress ($148) + Lululemon Define jacket ($118) + Vuori Halo wrap top ($88) + Popilush shapewear dress ($154) = **~$676**
 
 ---
 
-## NYC Outfit Formulas
+## NYC OUTFIT FORMULAS
 
 | Situation | Formula |
 |-----------|---------|
-| Sightseeing day (hot) | Empire waist maxi dress (Macy's or JCPenney) — one piece, done |
-| Museum / indoor day (AC) | White Mark empire tunic (Macy's) + jeans + light layer |
-| Dinner out | Sam Edelman floral maxi (Nordstrom) or Popilush shapewear dress (Nordstrom) |
-| Fourth of July festivities | White Mark ruffled empire dress (JCPenney) in red/blue/white |
-| Lunch / casual daytime | Halogen peplum top (Nordstrom) + jeans or linen pants |
-| Rainy day | Empire waist midi/maxi dress (JCPenney) — quick-dry, no clinging |
-| Evening walk | Draped tunic (Nordstrom) over jeans + light jacket |
+| Sightseeing day (hot) | Empire waist maxi dress + Soma smoothing cami underneath |
+| Museum / indoor day (AC) | Babydoll top (Cotton On) + high-waisted jeans (AE/Garage) + Define jacket (Lululemon) |
+| Dinner out | Sam Edelman floral maxi (Nordstrom) or Aritzia wrap dress or Janelle James ruched midi |
+| Fourth of July festivities | JCPenney ruffled empire dress (red/blue/white) or Athleta Transcend maxi |
+| Lunch / casual daytime | Chico's peplum top + wide-leg jeans |
+| Rainy day | Mango wrap midi dress — quick-dry, no clinging |
+| Evening walk | Vuori Halo wrap top + jeans + light jacket |
+| Active/sightseeing | Fabletics active dress — built-in shorts, shelf bra, fit-and-flare |
 
 ---
 
-## Shopping Plan for Washington Square Mall
+## SHOPPING ROUTE FOR WASHINGTON SQUARE MALL
 
-All three stores are in the same mall. Here's the efficient route:
+All stores on one level. Efficient route:
 
-1. START at Nordstrom (largest store, highest quality, try the Sam Edelman and Popilush first — these are the investment pieces)
-2. MOVE to Macy's (mid-range, try the tummy control section and the White Mark tunic)
-3. FINISH at JCPenney (budget options, try the White Mark empire dresses — best value)
+1. NORDSTROM (start here — largest selection, try Sam Edelman, Popilush, Halogen)
+2. ARITZIA (next to Nordstrom — premium wraps, structured fabrics)
+3. FREE PEOPLE (flowy bohemian maxis)
+4. J.CREW (wraps and structured blazers)
+5. MANGO (budget-mid wraps and empire)
+6. CHICO'S (40+ fit expertise — ask staff for tummy-friendly recommendations)
+7. ATHLETA (travel dresses and rompers)
+8. LULULEMON (Define jacket for layering)
+9. VUORI (wrap tops)
+10. AMERICAN EAGLE / AERIE (high-waisted jeans)
+11. GARAGE (budget jeans)
+12. HOLLISTER (budget jeans)
+13. COTTON ON (budget babydoll tops)
+14. ALTAR'D STATE (peplum and A-line dresses)
+15. H&M (budget wrap dresses)
+16. FABLETICS (active dresses)
+17. SOMA (shapewear underlayers — get sized by staff)
+18. UNTUCKIT (untucked-length tops)
+19. LEVI'S (high-waisted jeans with tummy control)
+20. JANELLE JAMES BOUTIQUE (local — fit-and-flare and ruched dresses)
+21. MACY'S (tummy control section, empire maxis)
+22. JCPENNEY (budget empire dresses — finish here)
 
 Sizing tips:
-- Denise is 5'6" — midi and maxi lengths will hit mid-calf to ankle (flattering zone)
-- All three stores offer regular and plus sizing
-- Nordstrom and Macy's have in-store alterations (free at Nordstrom for basic hemming)
-- Try everything on — empire waist placement varies by brand and needs to sit at the right spot below the bust
-- If between sizes, size down for empire waist (the fit is above the tummy, not at it)
+- Denise is 5'6" — midi and maxi will hit mid-calf to ankle (flattering zone)
+- All stores offer regular and plus sizing
+- Nordstrom offers free basic alterations (hemming)
+- Try everything on — empire waist placement varies by brand
+- Soma offers free bra fittings (worth doing for shapewear sizing)
+- Chico's staff are trained in body-type styling — ask for help
+- If between sizes, size down for empire waist (fit is above the tummy)
 
 ---
 
-## What to Avoid
+## WHAT TO AVOID
 
 - Shapeless/boxy cuts — add bulk, swallow the frame
 - Clingy knits — show every line including the tummy
 - Super low-rise anything — unflattering and uncomfortable
 - Polyester-heavy fabrics — trap heat and moisture in NYC humidity
-- Belts at the natural waist — draw attention to the tummy instead of above it
-- Anything that needs constant adjusting — NYC walking means the outfit has to stay put
+- Belts at the natural waist — draw attention to the tummy
+- Solid-color bodycon dresses without ruching or structure
+- Lululemon Align tank worn alone — too clingy for tummy area
 
 ---
 
-*Research compiled June 2026. Prices and availability may change. All items available at Washington Square Mall, Tigard, OR (Nordstrom, Macy's, JCPenney). Check in-store availability before visiting.*
+*Research compiled June 2026. Prices and availability may change. All items available at Washington Square Mall, Tigard, OR. Check in-store availability before visiting.*
