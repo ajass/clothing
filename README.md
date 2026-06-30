@@ -1,157 +1,127 @@
 # NYC Summer Wardrobe — Denise
 
-Wardrobe research for Denise: turning 40, mom bod, 5'6", traveling to New York City for July 4th holiday (summer, hot and humid, 85-95°F).
+Wardrobe research for Denise: turning 40, mom bod, 5'6", traveling to New York City for July 4th holiday (summer, hot and humid, 85-95F).
+
+Clothing only. All items available at Washington Square Mall (Tigard, OR) department stores: Nordstrom, Macy's, JCPenney. Focus: tummy-minimizing styles.
+
+## The Strategy: How to Minimize the Tummy
+
+Five silhouettes that work. Every item below uses one or more of these:
+
+1. EMPIRE WAIST — waistline sits just below the bust, fabric flows freely over the midsection. The single most effective tummy-minimizing cut.
+2. WRAP — fabric crosses over the front and ties at the waist, creating a V-neck that draws the eye up and a waistline that sits above the tummy.
+3. PEPLUM — fitted at the natural waist, flares out over the tummy. The flare camouflages without clinging.
+4. FIT-AND-FLARE / A-LINE — fitted bodice, skirt flares from the waist. Skims over the midsection without touching it.
+5. BUILT-IN SHAPEWEAR — dresses with integrated tummy control panels. Does the work without a separate shapewear layer.
+
+Additional principles:
+- Ruching and draping create texture that camouflages the tummy area
+- Darker colors on the bottom half, lighter or printed on top (draws the eye upward)
+- Structured fabrics hold their shape rather than clinging
+- Midi and maxi lengths are most flattering at 5'6" and most comfortable in NYC humidity
+- Avoid: shapeless/boxy cuts (add bulk), clingy knits (show every line), super low-rise anything
 
 ## NYC Summer Context
 
 New York in July is hot, humid, and involves a lot of walking. Outfits need to handle:
 - Long days on foot (sightseeing, subway stairs, blocks between stops)
 - Transitions from daytime casual to dinner-appropriate
-- Humidity — breathable fabrics are non-negotiable
-- Light rain possibility — quick-dry materials and a compact umbrella
+- Humidity — breathable fabrics are non-negotiable (linen, cotton, rayon blends)
+- Light rain possibility
 - Fourth of July festivities — red/white/blue accents if she wants to lean in
-
-Key principles from research:
-- **Fit over size** — tailored (not tight, not shapeless). Shapeless adds visual bulk.
-- **Define the waist** — wrap silhouettes and high-waisted bottoms are universally flattering for midsize/mom bod.
-- **Breathable fabrics** — linen, cotton, rayon blends. Avoid polyester-heavy synthetics in humidity.
-- **Neutral foundation** — navy, black, white, camel. Add one or two accent pieces.
-- **Midi and maxi lengths** — more flattering and comfortable than mini at 40.
-- **Layer for AC** — restaurants and subway cars pump AC hard; a lightweight jacket or blazer is practical, not just stylish.
+- Heavy AC in restaurants and subway cars — a lightweight layer is practical
 
 ---
 
-## The Wardrobe — 10 Pieces
+## The Wardrobe — 9 Pieces from Washington Square Mall
 
-### 1. Wrap Midi Dress (the hero piece)
-The single most recommended item across all sources. Wrap defines the waist, skims over the midsection, dresses up or down. V-neck elongates the neck and flatters the bust.
+### NORDSTROM (Oregon's largest, anchor store)
 
-**OUGES Wrap V-Neck A-Line Midi Dress with Pockets**
-- https://www.amazon.com/OUGES-Womens-Summer-Sleeve-Pockets/dp/B07N2PB4Z3
-- Wrap style, V-neck, A-line, pockets, lightweight. 1K+ bought in past month.
-- Pairs with sandals for day, block heels for dinner.
+#### 1. Sam Edelman Etched Floral Print Maxi Dress
+- https://www.nordstrom.com/s/sam-edelman-etched-floral-print-maxi-dress/6942464
+- WHY IT WORKS: Defined waist sits above the natural waistline (near empire), tiered ruffled skirt flows over the tummy. Floral print draws the eye across the whole dress, not the midsection. Sleeveless for heat. Stretch lining for smooth drape.
+- TUMMY SCORE: High. Defined waist + tiered skirt = the fabric never clings to the midsection.
+- Price: ~$168
+- WEAR IT: Dinner, date night, 4th of July evening out. Dress up with heels or down with flat sandals.
 
-### 2. Casual Midi Dress (daytime/sightseeing)
-A throw-on-and-go dress for walking days. Belt waist for shape.
+#### 2. Halogen Sleeveless Peplum Top
+- https://www.nordstrom.com/s/halogen-sleeveless-peplum-top/7342574
+- WHY IT WORKS: Peplum flare starts at the waist and falls over the tummy. The ruffled hem creates volume that hides what's underneath. Jewel neck is flattering on a fuller bust. Sleeveless for summer heat.
+- TUMMY SCORE: High. This is the peplum silhouette doing its job — fitted at the waist, flaring over the tummy.
+- Price: ~$49-69 (Nordstrom house brand, typically affordable)
+- WEAR IT: With jeans or linen pants for sightseeing + lunch. Tuck the front slightly for shape.
 
-**OFEEFAN Summer Dress V-Neck T-Shirt Casual Midi with Pockets**
-- https://www.amazon.com/OFEEFAN-Summer-Dresses-Sundresses-Pockets/dp/B0F6YLYWSC
-- Flattering on any body shape per reviews. Belt waist lets her cinch in.
-- Super cute and comfortable for hot walking days.
+#### 3. Popilush Built-in Shapewear Draped High Neck Maxi Dress
+- https://www.nordstrom.com/s/built-in-shapewear-draped-high-neck-maxi-dress/8745880
+- WHY IT WORKS: Built-in 3-in-1 shapewear handles tummy control and waist sculpting inside the dress. No separate shapewear layer in summer heat. Draped high neckline is elegant. Floral print camouflages.
+- TUMMY SCORE: Highest. Tummy control is literally built into the garment.
+- Price: ~$154
+- WEAR IT: Nice dinner, any occasion where she wants to feel put-together without thinking about it.
 
-### 3. Maxi Dress (dinner / date night / 4th of July evening)
-Long, elegant, comfortable. Works for a nice dinner out.
+#### 4. Stretch Knit Crepe Draped Tunic (also available in plus)
+- https://www.nordstrom.com/s/stretch-knit-crepe-draped-tunic-plus/9140419
+- WHY IT WORKS: Fluid draping creates folds that camouflage the midsection. Sleeveless tunic length covers the tummy area entirely. Crepe fabric is structured enough to hold its shape without clinging.
+- TUMMY SCORE: High. Draping + tunic length = nothing touches the tummy directly.
+- Price: ~$60-90
+- WEAR IT: Over jeans or wide-leg pants for a daytime look. Works with the blazer underneath for AC.
 
-**ANRABESS Women Summer Casual Maxi Dress with Pockets**
-- https://www.amazon.com/ANRABESS-Womens-Casual-Sleeve-Pockets/dp/B09TJRM344
-- Short sleeve, slight stretch, soft rayon blend. Side pockets.
-- Ankle length, elegant enough for dinner.
+### MACY'S
 
-### 4. Sleeveless Maxi Dress (hottest days)
-For the peak heat afternoons. Crew neck, sleeveless, wrinkle-free.
+#### 5. White Mark Empire Waist Tunic Top
+- https://www.macys.com/shop/product/white-mark-womens-empire-waist-tunic-top?ID=16207973
+- WHY IT WORKS: Empire waistband sits just below the bust. Fabric drapes freely from there over the entire midsection. Soft fabric drapes beautifully per reviews. Tunic length covers past the tummy.
+- TUMMY SCORE: High. Empire waist is the #1 tummy-minimizing cut per styling research.
+- Price: ~$40-52
+- WEAR IT: With jeans, linen pants, or over a slim dress. Casual daytime piece.
 
-**ANRABESS Sleeveless Crewneck Maxi Dress**
-- https://www.amazon.com/ANRABESS-Sleeveless-Crewneck-Wrinkle-Free-Vacation/dp/B0FTS7MJ5J
-- Lightweight, airy, side slit. Reviewers call it a "great beach dress" and evening relax dress.
-- Wrinkle-free — packs well for travel.
+#### 6. Macy's Tummy Control Dresses (Charter Club and others)
+- https://www.macys.com/shop/featured/tummy-control-dresses
+- WHY IT WORKS: Macy's has a dedicated tummy-control dress category. Charter Club pull-on shaping dresses and sculpting sweetheart midi dresses with built-in tummy control panels. Boat neck and twist-front V-neck options.
+- TUMMY SCORE: Highest. Built-in tummy control panels.
+- Price: ~$60-200 (varies by brand; Charter Club is the budget-friendly option, Lauren Ralph Lauren and others are higher)
+- WEAR IT: Check the section in-store at Macy's Washington Square. Try the Charter Club Boat Neck Pull-On Shaping Dress (~$89) for everyday and the Sculpting Sweetheart Midi (~$112) for dinner.
 
-### 5. High-Waisted Wide-Leg Jeans
-Elongate legs, smooth the midsection, NYC-appropriate. Dress up with blazer or down with tee.
+#### 7. Macy's Empire Waist Maxi Dress
+- https://www.macys.com/shop/featured/empire-waist-maxi-dress
+- WHY IT WORKS: Empire waist maxi dresses flow from above the tummy to the ankle. Nothing touches the midsection. Macy's has multiple options including V-neck maxi dresses with empire waist.
+- TUMMY SCORE: High. Empire + maxi = maximum tummy coverage with minimal clinging.
+- Price: ~$50-90
+- WEAR IT: Hot walking days, sightseeing, casual dinners. The throw-on-and-go dress.
 
-**PRETTYGARDEN Wide-Leg Jeans High-Waisted Stretchy**
-- https://www.amazon.com/PRETTYGARDEN-Waisted-Stretchy-Palazzo-Pockets/dp/B0F6NFNRTB
-- Trendy high waist, stretchy, raw hem. Pockets.
-- Black wash reads dressier for evening.
+### JCPENNEY
 
-### 6. Linen Pants (breathable alternative to jeans)
-Essential for NYC humidity. High-waisted, wide leg, flowy.
+#### 8. White Mark V-Neck Short Sleeve Ruffled Empire Waist Dress
+- https://www.jcpenney.com/g/women/dresses?dress_type=empire+waist+dresses&id=cat100210008
+- WHY IT WORKS: Empire waist, V-neck draws the eye up and elongates the neck (flattering on a fuller bust). Short sleeves cover the upper arms. Ruffled detail adds texture that camouflages. Available in regular and plus.
+- TUMMY SCORE: High. Empire waist + V-neck + ruffles — three tummy-minimizing features in one dress.
+- Price: ~$42-45 (with JCPenney codes often less)
+- WEAR IT: Daytime, sightseeing, casual lunch. Breathable for summer heat with short sleeves.
 
-**Fancysters Women's Wide Leg Linen Pants, High Waisted**
-- https://www.amazon.com/Fancysters-Waisted-Wide-Leg-Cotton-Pockets/dp/B0BY84W3XL
-- 20% linen / 80% cotton blend. Lightweight, breathable, skin-friendly.
-- Pairs with a fitted tee or the blazer.
-
-**Budget alternative: Amazon Essentials Linen Blend Drawstring Wide Leg Pants**
-- https://www.amazon.com/Amazon-Essentials-Womens-Drawstring-Available/dp/B0CL19QPYP
-- Relaxed fit, available in plus sizes. Drawstring waist for comfort.
-
-### 7. Structured Blazer (AC layers + evening polish)
-Restaurants and subway cars are heavily air-conditioned. A blazer transitions a day look to dinner instantly.
-
-**PRETTYGARDEN Open Front Blazer with Pockets**
-- https://www.amazon.com/PRETTYGARDEN-Blazers-Business-Casual-Pockets/dp/B0DPW3GCW1
-- Open front, long sleeve, practical pockets. Business casual but works over a tee.
-- Beige or navy for neutral versatility.
-
-### 8. Cropped Denim Jacket (casual layer)
-For cooler evenings or over a dress. Cropped length hits at the waist — better proportion for 5'6" than a long boyfriend jacket.
-
-**luvamia Cropped Denim Jacket**
-- https://www.amazon.com/luvamia-Cropped-Jackets-Lightweight-Stretchy/dp/B0CDBVK523
-- Lightweight, fitted, stretchy. 2026 style.
-- Throw over any dress or the linen pants + tee combo.
-
-### 9. Walking Sandals (the most important purchase)
-NYC means miles of walking. These need to be comfortable AND stylish. Podiatrist-recommended with arch support.
-
-**Naot Kayla Sandals**
-- https://www.amazon.com/NAOT-Kayla-Womens-Sandals-Travel-Friendly/dp/B0GTX661F3
-- 3-strap support with backstrap. Cork footbed molds to your foot over time.
-- Reviewers: "as comfortable as Birks, but dressier and easier to walk in."
-- These are the investment piece — ~$150. Worth every mile.
-
-### 10. Crossbody Bag (security + hands-free)
-NYC requires a secure, hands-free bag. Crossbody worn in front in crowds. Lightweight is key.
-
-**Baggu Small Nylon Crescent Bag**
-- https://www.amazon.com/BAGGU-Womens-Small-Nylon-Crescent/dp/B0CFRDLGR2
-- 5.5"H x 10.2"W x 3.3"D. Internal key leash. Recycled nylon.
-- Lightweight, expands to hold a lot, folds compact for packing.
-- ~$48. Hands-free, secure, stylish.
-
----
-
-## Accessories
-
-### Sunglasses
-NYC summer sun is real. UV protection is non-negotiable.
-
-**Ray-Ban Erika** — top pick for women across multiple review sites. Versatile frame, polarized options.
-- Search on Amazon: https://www.amazon.com/s?k=ray+ban+erika+sunglasses+women
-- ~$100-150 depending on lens option.
-
-### Compact Travel Umbrella
-July in NYC can bring sudden thunderstorms. Pack a compact umbrella.
-
----
-
-## What to Avoid
-
-- Shapeless/boxy cuts — add bulk, swallow the frame
-- Super low-rise anything — unflattering and uncomfortable
-- Polyester-heavy fabrics — trap heat and moisture in humidity
-- Heels you can't walk 10 blocks in — NYC is a walking city
-- Anything that clings to the midsection without structure
-- Large tote bags — pickpocket risk and fatigue on long days
+#### 9. JCPenney Empire Waist Dress Collection
+- https://www.jcpenney.com/g/women/dresses?dress_type=empire+waist+dresses&id=cat100210008
+- WHY IT WORKS: JCPenney has a curated empire waist dress collection from White Mark and other brands. Multiple colors, lengths, and sleeve options. All empire waist = all tummy-minimizing.
+- TUMMY SCORE: High by design — the entire collection is empire waist.
+- Price: ~$35-55
+- WEAR IT: Browse the full collection in-store at JCPenney Washington Square. Best budget option of the three stores.
 
 ---
 
 ## Packing List Summary
 
-| Item | Amazon Link | Est. Price |
-|------|------------|-----------|
-| Wrap midi dress | [OUGES](https://www.amazon.com/OUGES-Womens-Summer-Sleeve-Pockets/dp/B07N2PB4Z3) | ~$35 |
-| Casual midi dress | [OFEEFAN](https://www.amazon.com/OFEEFAN-Summer-Dresses-Sundresses-Pockets/dp/B0F6YLYWSC) | ~$30 |
-| Maxi dress (dinner) | [ANRABESS](https://www.amazon.com/ANRABESS-Womens-Casual-Sleeve-Pockets/dp/B09TJRM344) | ~$35 |
-| Sleeveless maxi | [ANRABESS](https://www.amazon.com/ANRABESS-Sleeveless-Crewneck-Wrinkle-Free-Vacation/dp/B0FTS7MJ5J) | ~$25 |
-| Wide-leg jeans | [PRETTYGARDEN](https://www.amazon.com/PRETTYGARDEN-Waisted-Stretchy-Palazzo-Pockets/dp/B0F6NFNRTB) | ~$40 |
-| Linen pants | [Fancysters](https://www.amazon.com/Fancysters-Waisted-Wide-Leg-Cotton-Pockets/dp/B0BY84W3XL) | ~$35 |
-| Blazer | [PRETTYGARDEN](https://www.amazon.com/PRETTYGARDEN-Blazers-Business-Casual-Pockets/dp/B0DPW3GCW1) | ~$45 |
-| Denim jacket | [luvamia](https://www.amazon.com/luvamia-Cropped-Jackets-Lightweight-Stretchy/dp/B0CDBVK523) | ~$40 |
-| Walking sandals | [Naot Kayla](https://www.amazon.com/NAOT-Kayla-Womens-Sandals-Travel-Friendly/dp/B0GTX661F3) | ~$150 |
-| Crossbody bag | [Baggu Crescent](https://www.amazon.com/BAGGU-Womens-Small-Nylon-Crescent/dp/B0CFRDLGR2) | ~$48 |
+| # | Item | Store | Tummy Strategy | Price |
+|---|------|-------|---------------|-------|
+| 1 | Sam Edelman Floral Maxi Dress | Nordstrom | Defined waist + tiered skirt | ~$168 |
+| 2 | Halogen Sleeveless Peplum Top | Nordstrom | Peplum flare over tummy | ~$49-69 |
+| 3 | Popilush Shapewear Maxi Dress | Nordstrom | Built-in tummy control | ~$154 |
+| 4 | Stretch Knit Crepe Draped Tunic | Nordstrom | Draping + tunic length | ~$60-90 |
+| 5 | White Mark Empire Waist Tunic Top | Macy's | Empire waist + drape | ~$40-52 |
+| 6 | Tummy Control Dress (Charter Club) | Macy's | Built-in shaping panel | ~$60-200 |
+| 7 | Empire Waist Maxi Dress | Macy's | Empire + maxi length | ~$50-90 |
+| 8 | White Mark Ruffled Empire Dress | JCPenney | Empire + V-neck + ruffles | ~$42-45 |
+| 9 | Empire Waist Dress Collection | JCPenney | Empire waist (various) | ~$35-55 |
 
-**Estimated total: ~$480** (not including sunglasses, umbrella, basics she may already own)
+**Estimated total (if buying all 9): ~$600-775**
+**Realistic pick of 4-5 for the trip: ~$200-400**
 
 ---
 
@@ -159,22 +129,42 @@ July in NYC can bring sudden thunderstorms. Pack a compact umbrella.
 
 | Situation | Formula |
 |-----------|---------|
-| Sightseeing day | Casual midi dress + walking sandals + crossbody bag + sunglasses |
-| Museum / indoor day | Linen pants + fitted tee + denim jacket (for AC) + sandals |
-| Dinner out | Wrap midi dress + blazer + sandals or block heels |
-| Fourth of July festivities | Sleeveless maxi dress (red/white/blue accent) + sandals + crossbody |
-| Evening walk / ice cream | Wide-leg jeans + tee + cropped denim jacket + sandals |
-| Rainy day | Linen pants + tee + blazer + compact umbrella + waterproof sandals |
+| Sightseeing day (hot) | Empire waist maxi dress (Macy's or JCPenney) — one piece, done |
+| Museum / indoor day (AC) | White Mark empire tunic (Macy's) + jeans + light layer |
+| Dinner out | Sam Edelman floral maxi (Nordstrom) or Popilush shapewear dress (Nordstrom) |
+| Fourth of July festivities | White Mark ruffled empire dress (JCPenney) in red/blue/white |
+| Lunch / casual daytime | Halogen peplum top (Nordstrom) + jeans or linen pants |
+| Rainy day | Empire waist midi/maxi dress (JCPenney) — quick-dry, no clinging |
+| Evening walk | Draped tunic (Nordstrom) over jeans + light jacket |
 
 ---
 
-## Sizing Notes
+## Shopping Plan for Washington Square Mall
 
-- Denise is 5'6" — midi and maxi lengths will hit at mid-calf to ankle, which is the flattering zone
-- Mom bod means midsection softness — wrap styles and high-waisted bottoms are the strategy
-- All recommended items have free 30-day returns on Amazon — order 2 sizes if unsure and return what doesn't fit
-- Look for "slight stretch" or "stretchy" in product descriptions for comfort
+All three stores are in the same mall. Here's the efficient route:
+
+1. START at Nordstrom (largest store, highest quality, try the Sam Edelman and Popilush first — these are the investment pieces)
+2. MOVE to Macy's (mid-range, try the tummy control section and the White Mark tunic)
+3. FINISH at JCPenney (budget options, try the White Mark empire dresses — best value)
+
+Sizing tips:
+- Denise is 5'6" — midi and maxi lengths will hit mid-calf to ankle (flattering zone)
+- All three stores offer regular and plus sizing
+- Nordstrom and Macy's have in-store alterations (free at Nordstrom for basic hemming)
+- Try everything on — empire waist placement varies by brand and needs to sit at the right spot below the bust
+- If between sizes, size down for empire waist (the fit is above the tummy, not at it)
 
 ---
 
-*Research compiled June 2026. Prices and availability may change. Check current pricing on Amazon before purchasing.*
+## What to Avoid
+
+- Shapeless/boxy cuts — add bulk, swallow the frame
+- Clingy knits — show every line including the tummy
+- Super low-rise anything — unflattering and uncomfortable
+- Polyester-heavy fabrics — trap heat and moisture in NYC humidity
+- Belts at the natural waist — draw attention to the tummy instead of above it
+- Anything that needs constant adjusting — NYC walking means the outfit has to stay put
+
+---
+
+*Research compiled June 2026. Prices and availability may change. All items available at Washington Square Mall, Tigard, OR (Nordstrom, Macy's, JCPenney). Check in-store availability before visiting.*
